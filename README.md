@@ -7,4 +7,5 @@ Human trafficking is a global phenomenon: more than 130 countries have reported 
 Human trafficking is condemned as a violation of human rights and I think it is important to give visibility to this social problem.
 
 Source: Counter Trafficking Data Collaborative (CTDC) 
+
 Lidia Benítez Brenes
